@@ -22,6 +22,5 @@ I advocate for a nuanced perspective on Singapore and its systems, even if it me
 If you're working on projects related to robotics, game development, or anything innovative and creative, I'd love to connect! Whether you're looking for a collaborator or just want to chat, feel free to reach out.
 
 ## 📫 Contact Me
-LinkedIn: https://www.linkedin.com/in/walter-ng-ze-yu/
-Email: walt0005@e.ntu.edu.sg
+Email: goldenhaleingermany@gmail.com
 Telegram: @GoldenHaleinEUW
