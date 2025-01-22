@@ -23,4 +23,4 @@ If you're working on projects related to robotics, game development, or anything
 
 ## 📫 Contact Me
 Email: goldenhaleingermany@gmail.com
-Telegram: @GoldenHaleinEUW
+Whatsapp/Telegram: +4917685209054
